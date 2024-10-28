@@ -1,0 +1,1 @@
+# Tavuk_hastal-_s-n-fland-rma_G-r-nt-_-leme_Projesi.py
